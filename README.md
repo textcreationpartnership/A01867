@@ -35,14 +35,18 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The tryall of trauell, or, [brace] 1. The wonders in trauell, 2. The worthes of trauell, 3. The way 
+TO THE THRICE NOBLE And Illuſtrious Lady: prime ſeate of all princely worth, Great honor of trauell,
+1. To all the ſonnes of Noble trauaile whether Merchant, Martiall, or Maryne Negotiators.
+
+1. The Prologue to the Generall
+
 #####Body#####
+The wonders in trauaile.What time Iehove had all things ready made. Geneſeoſ. 1. Adam primus homo da
+    _ The wonders in trauaile.
 
-1. The wonders in trauaile.
+    _ The worthes of trauels.
 
-1. The worthes of trauels.
-
-1. The way to trauaile.
+    _ The way to trauaile.
 
 **Types of content**
 
